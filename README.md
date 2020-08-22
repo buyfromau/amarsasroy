@@ -1,4 +1,4 @@
-## Welcome to www.amarsasroy.com
+## Welcome to www.amarshasroy.com
 
 Thankyou for vising the amar sasroy website.
 
